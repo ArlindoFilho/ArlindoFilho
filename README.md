@@ -1,4 +1,4 @@
-# Ola eu sou o Verzegnassi *_*
+# Ola eu sou o Verzegnassi (⓿_⓿)
 
 <!--
 **ArlindoFilho/ArlindoFilho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
